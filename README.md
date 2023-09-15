@@ -2,7 +2,7 @@
 - 👀 I’m interested in making games
 - 🌱 I’m currently making a game for the world
   
-- 💞️ I’m looking foreward to makong this game
+- 💞️ I’m looking foreward to making this game!
 
   
 
